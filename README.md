@@ -1,1 +1,0 @@
-# Landing_Page_DermaCheck1
